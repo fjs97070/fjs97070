@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Flo
+- 👀 I’m interested in learning everything^^
+- 🌱 I’m currently learning Python.
+- 💞️ I’m looking to collaborate on idk?
+- 📫 How to reach me just write me a Mail :)
